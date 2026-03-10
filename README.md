@@ -1,1 +1,1 @@
-WRITE.
+There is nothing to see here, friend.
